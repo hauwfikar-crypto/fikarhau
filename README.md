@@ -1,3 +1,4 @@
 # fikarhau
 saya adalah pengajar yang dibawah naungan bapak harianto yang sangat baik hati
-https://github.com/hauwfikar-crypto/fikarhau
+
+https://hauwfikar-crypto.github.io/fikarhau/game.fum.10.tsm.bahan.bakar.html
